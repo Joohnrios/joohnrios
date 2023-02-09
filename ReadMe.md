@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm studying python.
+Almost Dev Jr. 🙏🤙
 
 
 ## 🌐 Socials:
